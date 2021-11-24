@@ -1,0 +1,2 @@
+- hi im lea
+- basically im only here because github looks cool lol.
